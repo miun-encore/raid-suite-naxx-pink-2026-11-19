@@ -1,0 +1,1 @@
+# raid-suite-naxx-pink-2026-11-19
